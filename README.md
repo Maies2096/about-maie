@@ -41,4 +41,6 @@ _**Gym is inlcuded on all days but Wednesday and Thursday**_
 9. Model UN
  * Rader
 
-Maie likes animals. For animal pictures [click here](https://www.google.com/search?safe=strict&ei=5XPNXaMp76SCB_OCjdAF&q=funny+cute+animal+pictures&oq=funny+cute+animal+pictures&gs_l=psy-ab.3..0j0i7i30j0i7i10i30j0i5i30j0i8i30l6.3202.6009..6282...1.3..1.180.1009.11j1......0....1..gws-wiz.......0i71j0i13j0i67j0i8i7i30.AoU-xUTRIT0&ved=0ahUKEwjjr6Stg-rlAhVvkuAKHXNBA1oQ4dUDCAs&uact=5)
+Maie is a sucker for cuteness overload. If you want to check out why [click here](https://www.buzzfeed.com/tag/cute-overload)
+
+
