@@ -11,7 +11,7 @@ She is interested in science and can communicate with Arabic, Russian, French, a
 One day she wants to be a doctor because she loves helping people out.
 
 #### Schedule:
-_**Model Un is excluded on all days but Tuesday**_
+_**Model Un is excluded on all days but Tuesday**_\
 
 _**Gym is inlcuded on all days but Wednesday and Thursday**_
 
