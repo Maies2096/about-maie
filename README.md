@@ -44,4 +44,4 @@ _**Gym is inlcuded on all days but Wednesday and Thursday**_
 
 Maie likes to be happy. If you want to be happy like Maie [click here](https://www.sunnyskyz.com/happy-pictures)
 
-
+reviewed by **Alana Liu**
